@@ -1,0 +1,36 @@
+# برآورد صحیح از خویشتن | به وقت خودشناسی | جلسه سوم | دکتر آذرخش مکری
+
+---
+
+## اطلاعات ویدیو
+
+| مشخصه | مقدار |
+|--------|-------|
+| **نام ویدیو** | `برآورد صحیح از خویشتن ｜ به وقت خودشناسی ｜ جلسه سوم ｜ دکتر آذرخش مکری` |
+| **لینک اصلی** | [ویدیوی یوتیوب](https://youtu.be/KTVM4GF_gvo?si=7HhzaJPEVv7-A5Tp) |
+| **حجم کل** | **7 بخش** - **549.25 مگابایت** |
+| **کیفیت** | **best** |
+| **وضعیت** | **کامل (۱۰۰%)** |
+| **رمز عبور** | **ندارد** |
+
+---
+
+## لینک‌های دانلود
+
+| # | فایل | لینک |
+|---|------|------|
+| 1 | `برآورد صحیح از خویشتن ｜ به وقت خودشناسی ｜ جلسه سوم ｜ دکتر آذرخش مکری_sky_7405.z01` | [دانلود](https://github.com/cvmanager/youtube-download/raw/main/videos/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405.z01) |
+| 2 | `برآورد صحیح از خویشتن ｜ به وقت خودشناسی ｜ جلسه سوم ｜ دکتر آذرخش مکری_sky_7405.z02` | [دانلود](https://github.com/cvmanager/youtube-download/raw/main/videos/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405.z02) |
+| 3 | `برآورد صحیح از خویشتن ｜ به وقت خودشناسی ｜ جلسه سوم ｜ دکتر آذرخش مکری_sky_7405.z03` | [دانلود](https://github.com/cvmanager/youtube-download/raw/main/videos/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405.z03) |
+| 4 | `برآورد صحیح از خویشتن ｜ به وقت خودشناسی ｜ جلسه سوم ｜ دکتر آذرخش مکری_sky_7405.z04` | [دانلود](https://github.com/cvmanager/youtube-download/raw/main/videos/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405.z04) |
+| 5 | `برآورد صحیح از خویشتن ｜ به وقت خودشناسی ｜ جلسه سوم ｜ دکتر آذرخش مکری_sky_7405.z05` | [دانلود](https://github.com/cvmanager/youtube-download/raw/main/videos/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405.z05) |
+| 6 | `برآورد صحیح از خویشتن ｜ به وقت خودشناسی ｜ جلسه سوم ｜ دکتر آذرخش مکری_sky_7405.z06` | [دانلود](https://github.com/cvmanager/youtube-download/raw/main/videos/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405.z06) |
+| 7 | `برآورد صحیح از خویشتن ｜ به وقت خودشناسی ｜ جلسه سوم ｜ دکتر آذرخش مکری_sky_7405.zip` | [دانلود](https://github.com/cvmanager/youtube-download/raw/main/videos/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405/%D8%A8%D8%B1%D8%A2%D9%88%D8%B1%D8%AF%20%D8%B5%D8%AD%DB%8C%D8%AD%20%D8%A7%D8%B2%20%D8%AE%D9%88%DB%8C%D8%B4%D8%AA%D9%86%20%EF%BD%9C%20%D8%A8%D9%87%20%D9%88%D9%82%D8%AA%20%D8%AE%D9%88%D8%AF%D8%B4%D9%86%D8%A7%D8%B3%DB%8C%20%EF%BD%9C%20%D8%AC%D9%84%D8%B3%D9%87%20%D8%B3%D9%88%D9%85%20%EF%BD%9C%20%D8%AF%DA%A9%D8%AA%D8%B1%20%D8%A2%D8%B0%D8%B1%D8%AE%D8%B4%20%D9%85%DA%A9%D8%B1%DB%8C_sky_7405.zip) |
+
+---
+
+## نحوه استخراج
+
+۱. **دانلود** همه فایل‌های `.zip` و `.z01`، `.z02`...
+۲. **استخراج** با استفاده از [7-Zip](https://www.7-zip.org/) یا [WinRAR](https://www.rarlab.com/)
+۳. فایل `.zip` را باز کنید — تمام بخش‌ها به صورت خودکار ترکیب می‌شوند
